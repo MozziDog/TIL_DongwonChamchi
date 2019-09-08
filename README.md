@@ -1,2 +1,2 @@
 # TIL_DongwonChamchi
-5 Chamchi per week
+5 Chamchi per a week
